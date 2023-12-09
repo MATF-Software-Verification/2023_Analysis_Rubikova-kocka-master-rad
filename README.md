@@ -1,0 +1,1 @@
+# 2023_Analysis_Rubikova-kocka-master-rad
